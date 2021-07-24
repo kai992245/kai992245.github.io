@@ -3,11 +3,9 @@
 Welcome, I'm glad to see that you are enjoying yourself! Make reading this self-centered and loving blog more of a daily convience rather than just for a friend. : 2
 
 ## My Favourite Food
-  1. Whatever Xiangling makes
-  2. Whatever my sister makes
-  3. Whatever my dad makes
-  4. Whatever my mom makes
-  5. Whatever I make
+  1. rat meat
+  2. bear meat
+  3. human flesh
 
 ## Cute Shaved Bear for your Poor Eyes
 
